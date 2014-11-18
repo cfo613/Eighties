@@ -13,7 +13,7 @@ Here is a list of some sweet tunes from the 80s and 90s - enjoy!
  [A-ha](http://a-ha.com/) | ![Alt Text](http://a3.mzstatic.com/us/r30/Music/v4/87/11/27/87112784-44ba-f76e-9b62-da6415844990/cover100x100.jpeg)
 
 
- ###*Artists featured from the 90s*
+###*Artists featured from the 90s*
  Artist | Remember Me?
  ------ | -----------
  [Nirvana](http://www.nirvana.com/) | ![Alt Text](http://images.upvenue.com/square_thumb/articles/deluxe-edition-of-nirvana-s-nevermind-coming-out-this-year-1400.jpg)
