@@ -16,7 +16,7 @@ Here is a list of some sweet tunes from the 80s and 90s - enjoy!
  ###*Artists featured from the 90s*
  Artist          | Remember Me?
  --------------- | -----------
- [Nirvana](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=1&cad=rja&uact=8&ved=0CB4QFjAA&url=http%3A%2F%2Fwww.nirvana.com%2F&ei=2YlqVJ7ABs3OsQSa0IDYDA&usg=AFQjCNHbM9pI9Bk69-MhV3yjljadQ_NUUA&sig2=3jslRj898m5hSZsshVZRyQ&bvm=bv.79908130,d.cWc) | ![Alt Text](http://images.upvenue.com/square_thumb/articles/deluxe-edition-of-nirvana-s-nevermind-coming-out-this-year-1400.jpg)
+[Nirvana](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=1&cad=rja&uact=8&ved=0CB4QFjAA&url=http%3A%2F%2Fwww.nirvana.com%2F&ei=2YlqVJ7ABs3OsQSa0IDYDA&usg=AFQjCNHbM9pI9Bk69-MhV3yjljadQ_NUUA&sig2=3jslRj898m5hSZsshVZRyQ&bvm=bv.79908130,d.cWc) | ![Alt Text](http://images.upvenue.com/square_thumb/articles/deluxe-edition-of-nirvana-s-nevermind-coming-out-this-year-1400.jpg)
  [R.E.M.](http://remhq.com/index.php) | ![Alt Text](http://a4.mzstatic.com/us/r30/Music5/v4/3a/04/01/3a040124-327d-7c55-4f42-067fba1918f9/cover100x100.jpeg)
  [Madonna](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=1&cad=rja&uact=8&ved=0CB4QFjAA&url=http%3A%2F%2Fwww.madonna.com%2F&ei=cIdqVM3ZJY21sQTvVg&usg=AFQjCNH_OdiHQD_C1fk3hOc9iRyykny8Pw&sig2=8DuSjaMy751ec_ze7vEuXw&bvm=bv.79908130,d.cWc) | ![Alt Text](http://a4.mzstatic.com/us/r30/Music/v4/af/2a/bf/af2abfb7-9d25-6004-e2fe-d8d5085dfdbf/cover100x100.jpeg)
  [BLACKstreet feat. Dr Dre](http://www.mtv.com/artists/blackstreet/) | ![Alt Text](https://i1.sndcdn.com/artworks-000037249577-dfsz4r-large.jpg)
