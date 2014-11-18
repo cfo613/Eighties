@@ -22,5 +22,5 @@ Here is a list of some sweet tunes from the 80s and 90s - enjoy!
  [BLACKstreet](http://www.mtv.com/artists/blackstreet/) | ![Alt Text](https://i1.sndcdn.com/artworks-000037249577-dfsz4r-large.jpg)
 [Weezer](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=1&cad=rja&uact=8&ved=0CCEQFjAA&url=http%3A%2F%2Fwww.weezer.com%2F&ei=GIpqVNipF8nksATj3oC4Dw&usg=AFQjCNG3f7GU8VAX1gK8ftC_JTxGMKiZkg&sig2=ukXIE1K6XLiXxc13XxplGQ&bvm=bv.79908130,d.cWc) | ![Alt Text](http://ecx.images-amazon.com/images/I/41EJnF-I2lL._SL500_SS100_.jpg)
 
-####*Hope this page makes you want to do your happy dance*
+####*Hope this page makes you want to do your happy dance :dancer: !*
 ![Alt Text](http://cdnl.complex.com/assets/CHANNEL_IMAGES/TECH/2012/11/content/mj1.gif)
